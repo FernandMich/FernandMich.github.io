@@ -2,8 +2,7 @@
 * [**FernandMich's Livestream**](https://www.twitch.tv/fernandmich)
 
 --
-layout: post
-tittle "FernandMich's Skins Osu!"
+Mi Repertorio de Skins
 --
 
 Lorem ipsum dolor sit amet consectetur adipiscing elit duis eros ultrices, lacus
