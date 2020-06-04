@@ -4,9 +4,9 @@
 Mi Repertorio de Skins
 --
 
-Aqui estan las skins que regularmente uso. me gusta las skins cleans y que suenen agradable al tapeo 
-soy un jugardor que no usa muchos mods asi que skins para HD o DT solo habrá pocas o ninguna.
-Este espacio esta en construcción eso quiere decir que irá en aumento el número de skins a futuro. 
+Aqui estan las skins que regularmente Uso. Me gusta las skins cleans y que suenen agradable al tapeo 
+Soy un jugardor que no usa muchos Mods, Asi que Skins para HD o DT solo habrá pocas o ninguna.
+Este espacio esta en construcción eso quiere decir que irá en Aumento a futuro. 
 
 ## [Kurumi Tokisaki skin](http://www.mediafire.com/file/e5zajuac83uxupd/-_Kurumi_-.osk/file)
 ![](https://i.imgur.com/BCxV4S2.png)![](https://i.imgur.com/pJPZvDk.png)
