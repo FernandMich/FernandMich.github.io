@@ -4,7 +4,7 @@
 Mi Repertorio de Skins
 --
 
-Aqui estan las skins que regularmente Uso. Me gustan las skins Cleans y que Suenen agradable al Tapeo 
+Aqui estan las skins que regularmente Uso. Me gustan las skins Cleans y que Suenen agradable al Tapeo.
 Soy un jugardor que no usa muchos Mods, Asi que Skins para HD o DT solo habrá pocas o ninguna.
 Este espacio esta en construcción eso quiere decir que irá en Aumento a futuro. 
 
