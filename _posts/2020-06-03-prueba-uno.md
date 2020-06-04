@@ -8,6 +8,8 @@ Aqui estan las skins que regularmente Uso. Me gustan las skins Cleans y que Suen
 Soy un jugardor que no usa muchos Mods, Asi que Skins para HD o DT solo habrá pocas o ninguna.
 Este espacio esta en construcción eso quiere decir que irá en Aumento a futuro. 
 
+Si quieres descargar solo tienes que clickear en los nombres en azul :3
+
 ## [Kurumi Tokisaki skin](http://www.mediafire.com/file/e5zajuac83uxupd/-_Kurumi_-.osk/file)
 ![](https://i.imgur.com/BCxV4S2.png)![](https://i.imgur.com/pJPZvDk.png)
 
