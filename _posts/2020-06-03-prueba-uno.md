@@ -1,7 +1,6 @@
 * [**FernandMich's Discord Server**](https://discord.com/invite/aQVnMK3)  
 * [**FernandMich's Livestream**](https://www.twitch.tv/fernandmich)
 
---
 Mi Repertorio de Skins
 --
 
