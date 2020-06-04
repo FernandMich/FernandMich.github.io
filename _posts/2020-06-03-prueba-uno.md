@@ -4,12 +4,9 @@
 Mi Repertorio de Skins
 --
 
-Lorem ipsum dolor sit amet consectetur adipiscing elit duis eros ultrices, lacus
-neque suspendisse mauris risus etiam litora sollicitudin dis, penatibus nisi curabitur 
-aliquam mattis morbi turpis aenean posuere. Aliquet nostra nullam fringilla odio neque mus 
-facilisis montes sem, feugiat netus interdum fusce congue dapibus ultricies sollicitudin. Mi mattis arcu 
-pretium id sapien urna lacinia aenean, augue enim fermentum scelerisque in integer curabitur fames laoreet, placerat 
-ridiculus sodales rhoncus hac porta suscipit.
+Aqui estan las skins que regularmente uso. me gusta las skins cleans y que suenen agradable al tapeo 
+soy un jugardor que no usa muchos mods asi que skins para HD o DT solo habrá pocas o ninguna.
+Este espacio esta en construcción eso quiere decir que irá en aumento el número de skins a futuro. 
 
 ## [Kurumi Tokisaki skin](http://www.mediafire.com/file/e5zajuac83uxupd/-_Kurumi_-.osk/file)
 ![](https://i.imgur.com/BCxV4S2.png)![](https://i.imgur.com/pJPZvDk.png)
