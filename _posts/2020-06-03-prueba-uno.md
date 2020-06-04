@@ -1,3 +1,6 @@
+* [**BeasttrollMC's Discord Server**](https://discord.gg/beasttrollmc)  
+* [**BeasttrollMC's Livestream**](https://twitch.tv/beasttrollmc)
+
 --
 layout: post
 tittle "FernandMich's Skins Osu!"
