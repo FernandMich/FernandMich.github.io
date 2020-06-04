@@ -1,5 +1,5 @@
-* [**BeasttrollMC's Discord Server**](https://discord.gg/beasttrollmc)  
-* [**BeasttrollMC's Livestream**](https://twitch.tv/beasttrollmc)
+* [**FernandMich's Discord Server**](https://discord.com/invite/aQVnMK3)  
+* [**FernandMich's Livestream**](https://www.twitch.tv/fernandmich)
 
 --
 layout: post
